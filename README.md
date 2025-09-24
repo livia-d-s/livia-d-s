@@ -11,7 +11,7 @@
 - 🎓 **DevClub (2025)** **Front-end** (HTML, CSS, JavaScript, Git, GitHub, React em andamento)  
 - 🌍 Experiência internacional na **Suécia (Au Pair, 2022)** — onde pratiquei inglês diariamente e aprendi sueco básico  
 - 📸 Empreendi por mais de **6 anos com fotografia gastronômica e edição de vídeos**  
-- 🏊‍♀️ Meus hobbies: **natação, yoga, leitura e aprender idiomas** (inglês avançado, sueco e alemão básicos)  
+- 🏊‍♀️ Meus hobbies principais: **natação, yoga, ir em brechós+cafés e aprender idiomas**
 - 💡 Curiosidade: aprendi **inglês sozinha**, por conta própria.  
 
 ---
