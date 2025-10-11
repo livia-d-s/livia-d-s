@@ -12,7 +12,7 @@
 - 🌍 Experiência internacional na **Suécia (Au Pair, 2022)** — onde pratiquei inglês diariamente e aprendi sueco básico  
 - 📸 Empreendi por mais de **6 anos com fotografia gastronômica e edição de vídeos**  
 - 🏊‍♀️ Meus hobbies principais: **natação, yoga, ir em brechós+cafés e aprender idiomas**
-- 💡 Curiosidade: aprendi **inglês e sueco** por conta própria.  
+- 💡 Curiosidade: aprendi todos os idiomas **por conta própria**.  
 
 ---
 
